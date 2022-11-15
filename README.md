@@ -1,0 +1,1 @@
+Gonna see what i've learned. Hope it'll won't take weeks
